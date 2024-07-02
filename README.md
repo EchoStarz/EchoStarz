@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @EchoStarz
+- 👀 I’m interested in game design and AI
+- 🌱 I’m currently learning blueprints
+- 💞️ I’m looking to collaborate on some video game projects
+- 📫 How to reach: me @EchoStarz
+- ⚡ Fun fact: I've read over 2500 books
